@@ -1,0 +1,1 @@
+# edusify-details
